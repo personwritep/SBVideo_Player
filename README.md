@@ -3,4 +3,4 @@
 このツールによるプレーヤーの仕様・デザインの変更は、アメーバ上のスマホ動画の全てに適用されます。<br>
 <br>
 このツールの詳細については、以下のページを参照ください。<br>
-https://ameblo.jp/personwritep/entry-12830051404.html
+https://ameblo.jp/personwritep/entry-12876289403.html
